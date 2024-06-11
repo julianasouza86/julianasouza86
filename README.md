@@ -1,3 +1,5 @@
 ### Boas vindas ao meu perfil BR
 
-Meu nome 
+Meu nome é juliana 
+
+-Estou estudando na [Al
